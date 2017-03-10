@@ -2,4 +2,4 @@
 
 Greetings!
 
-Fairly new, but keen to learn. I have an addiction to chocolate.
+I have an addiction to chocolate.
